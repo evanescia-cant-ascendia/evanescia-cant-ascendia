@@ -8,7 +8,7 @@
 <details>
   <summary>Ponytown Info</summary>
   
-  + 19 y/o
+  + 19 y/o (Got flagged as under 18 for a joke, stuck in safe server)
   + ALWAYS c+h!! Just pls ask if I'm already with a friend!!
   + W2I pls I'm often offtab
   + This is an account for my genshin skins or other similar games!
@@ -17,6 +17,9 @@
   + I block freely and am anti-harassment, but I do not support proshippers and the likes!
   + I do not want to befriend nonsharing yumeshippers! I frequently call my favorites my wives/husbands
   + I don't have much of a DNI other than basic things, proshippers, people who make NSFW jokes in public chat, stuff like that
+  + If I'm using this account, I'm either in the HOYO area or with my best friend!! If I'm with my best friend, you'll see me here
+    <img width="659" height="615" alt="image" src="https://github.com/user-attachments/assets/05beacc8-e637-4e3b-8f57-b9817961378f" />
+
 </details>
 
 <img width="1000" height="137" alt="image" src="https://github.com/user-attachments/assets/44d472ff-073c-4ac6-a427-9aaed241b3b5" />
