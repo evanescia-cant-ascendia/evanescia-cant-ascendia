@@ -1,3 +1,4 @@
-# "I will chop up the old laws and let them be firewood for the new." No matter the cost.
+# ${\color{#74c4e9}"I}$ ${\color{#abdce2}will}$ ${\color{#74c4e9}chop}$ ${\color{#abdce2}up}$ ${\color{#74c4e9}the}$ ${\color{#abdce2}old}$ ${\color{#74c4e9}laws}$ ${\color{#abdce2}and}$ ${\color{#74c4e9}let}$ ${\color{#abdce2}them}$ ${\color{#74c4e9}be}$ ${\color{#c21f1f}firewood}$ ${\color{#74c4e9}for}$ ${\color{#abdce2}the}$ ${\color{#74c4e9}new."}$ ${\color{#abdce2}No}$ ${\color{#74c4e9}matter}$ ${\color{#abdce2}the}$ ${\color{#74c4e9}cost.}$
 
-<img width="904" height="1260" alt="image" src="https://github.com/user-attachments/assets/823e005f-10bc-43ff-aa38-a84e01cd8867" />
+<img width="869" height="85" alt="image" src="https://github.com/user-attachments/assets/b1d0bec3-8d89-4bb0-8105-0f786da3ac40" />
+
