@@ -1,5 +1,6 @@
-# $\color{#74c4e9}\textsf{「法」の名において宣告する——チェックメイトだ！}$
+# $\color{#F26B9C}\textsf{I decide the rules of the game... And you're out!}$
 
-<img width="456" height="475" alt="image" src="https://github.com/user-attachments/assets/392822cc-0fe5-499d-9bdb-15e35b71d71f" />
+<img width="214" height="207" alt="image" src="https://github.com/user-attachments/assets/8246ece6-b91f-4747-b18f-809ba7301159" />
+
 
 
