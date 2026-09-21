@@ -9,3 +9,5 @@
 $\color{#ffb0d2}\textsf{I'm bodily 19!}$
 
 $\color{#ffb0d2}\textsf{Feel free to c+h and int !! Always w2i as I have my chat closed!!}$
+
+$\color{#ffb0d2}\textsf{Kenji (the vtuber) fans DNI!!! My strawpage has info why I don't like him1!!!!!}$
