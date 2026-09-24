@@ -8,6 +8,10 @@
 
 $\color{#ffb0d2}\textsf{I'm bodily 19!}$
 
-$\color{#ffb0d2}\textsf{Feel free to c+h and int !! Always w2i as I have my chat closed!!}$
+$\color{#ffb0d2}\textsf{Feel free to c+h and int !! Always w2i as I have my chat closed!! I use cuddling on pt as a way to help my anxiety, so always do it!!!}$
 
-$\color{#ffb0d2}\textsf{Kenji (the vtuber) fans DNI!!! My strawpage has info why I don't like him1!!!!!}$
+$\color{#ffb0d2}\textsf{99.99 percent gonna be seen in the TWST area, otherwise I'm either in the party island or with my friends!!}$
+
+$\color{#ffb0d2}\textsf{Better not to interact or iwec if: you proship (and especially like ruggie x leon, tweelcest and shroudcest), support nijisanji, support the vtuber kenji}$ $\color{#ffb0d2}\textsf{use the r slur, and also basic dni}$
+
+$\color{#ffb0d2}\textsf{Often playing: Genshin, HSR or Dandy's World! Other interests include: ZZZ, WuWa, TWST, Umamusume, PJSK, Enstars, Strange Eden, Fragmem, Paradox Live, and more!!}$ $\color{#ffb0d2}\textsf{Paradox Live, Sparklink Stars, and more!!}$
